@@ -43,4 +43,4 @@ Add extra pasta cooking water to keep it saucy (several tablespoons should do it
 STEP 12
 Use a long-pronged fork to twist the pasta on to the serving plate or bowl. Serve immediately with a little sprinkling of the remaining cheese and a grating of black pepper. If the dish does get a little dry before serving, splash in some more hot pasta water and the glossy sauciness will be revived.
 
-Asere: street dialect from cuban people to speak to friends. ist the cuban word fro Broh!
+Asere: street dialect from cuban people to speak to friends. ist the cuban word for Broh!
