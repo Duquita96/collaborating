@@ -49,6 +49,7 @@ Asere: street dialect from cuban people to speak to friends. ist the cuban word 
 
 
 
+
 Rami
 
 ( I love Cooking )
